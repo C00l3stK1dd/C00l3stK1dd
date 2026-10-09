@@ -14,9 +14,10 @@ yaya
 <img width="3264" height="2448" alt="IMG_0016" src="https://github.com/user-attachments/assets/256048ed-c347-487c-902a-23da70d5c473" />
 <img width="3264" height="2448" alt="IMG_0019" src="https://github.com/user-attachments/assets/cab93440-f5ce-4de7-b6b8-1acf3c35ee84" />
 
-
 coughs....im a simp..hooway....
+
 <img width="387" height="516" alt="IMG_0008" src="https://github.com/user-attachments/assets/72c11032-44ea-41bd-9252-4ebd46b1f787" />
+
 
 my bday is in spooktober :] (le 9th)
 
