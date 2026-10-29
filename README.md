@@ -3,7 +3,7 @@ meeeeeep hihi
 pls call meh sans or bluu ^^
 uh this is gonna be simple until i stop being lazy
 ugh i forgot how introductions work
-
+go check out mi sp i got a better into there wahoo-
 i like arts :] 
 
 uh
